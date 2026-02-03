@@ -1,1 +1,0 @@
-# takakura-app
